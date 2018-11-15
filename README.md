@@ -5,13 +5,13 @@ For my white paper, I will be delving into the depths of creativity. Does creati
 
 # Sources
 
-https://www.elitedaily.com/money/entrepreneurship/creativity-important-quality
-https://www.mindstructures.com/why-creativity-is-an-essential-step-in-human-development/
-https://tscpl.org/art/why-is-creativity-important-in-everyday-life
-https://www.linkedin.com/pulse/importance-creativity-innovation-business-siyana-sokolova]
-https://verilymag.com/2016/01/mental-emotional-health-creativity-happiness
-https://www.medicaldaily.com/creativity-good-your-health-heres-how-422632
-https://www.everydayhealth.com/emotional-health/understanding/creativity-productivity-and-leisure.aspx
-https://jamesclear.com/make-more-art
+1. https://www.elitedaily.com/money/entrepreneurship/creativity-important-quality
+2. https://www.mindstructures.com/why-creativity-is-an-essential-step-in-human-development/
+3. https://tscpl.org/art/why-is-creativity-important-in-everyday-life
+4. https://www.linkedin.com/pulse/importance-creativity-innovation-business-siyana-sokolova]
+5. https://verilymag.com/2016/01/mental-emotional-health-creativity-happiness
+6. https://www.medicaldaily.com/creativity-good-your-health-heres-how-422632
+7. https://www.everydayhealth.com/emotional-health/understanding/creativity-productivity-and-leisure.aspx
+8. https://jamesclear.com/make-more-art
 
 
